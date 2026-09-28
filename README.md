@@ -1,2 +1,0 @@
-# Filipino
-Practice QUIZ
